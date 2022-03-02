@@ -1,0 +1,4 @@
+- 👋 Hi, I’m HwnSpirit & from the Hawaiian Islands.
+- 👀 I’m interested in learning about IPTV stuff and making my own playlist...
+- 🌱 I’m currently playing around with Kodi, understanding and learning about repositories and hope to make my own Build someday.
+- 💞️ How to reach me .. HwnSpirit@yahoo.com
